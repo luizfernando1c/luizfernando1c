@@ -1,0 +1,7 @@
+- Olá, meu nome Luiz, sou estudante do 1 série C,
+-na escola Leonardo Vilas Boas, em Osasco/SP
+-Estou aprendendo a utilizar o alura
+-Meu sonho é ser jogador de Volei
+-nas minhas horas vagas gosto de ficar jogando
+-contato 00001106924101sp@al.educacao.sp.gov.br
+-![](https://media1.tenor.com/m/RP_qoKH85xgAAAAd/the-rock-sus-the-rock-meme.gif)
